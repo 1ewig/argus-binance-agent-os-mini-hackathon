@@ -1,3 +1,7 @@
+
+
+https://github.com/user-attachments/assets/c2443cc3-256c-4c35-90d0-72290ff7067d
+
 # Argus — Your Intelligent Trading Desk Companion
 
 <p align="left">
